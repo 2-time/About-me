@@ -24,6 +24,6 @@ Fandoms I'm in right now..,
 ✦︎ - - - - - - - - - - - - - - - - -
 I'm a bit extroverted,but feel free to interact and cuddle with me. W2i prefered.
 Although,if you get really close with me i might be annoying sometimes-
-Also i LOVE matching! And making new friends too.^_^
+Also i LOVE matching! And making new friends too:3
 ✦︎ - - - - - - - - - - - - - - - - 
-oomfies;; @Xioisme @blueberryshadow @Kuro1x @elliott-thegambler @LeechingMer ! Follow these guys they're peak ^_^
+oomfies;; @C00LGUI7n7 @Xioisme @blueberryshadow @Kuro1x @elliott-thegambler @LeechingMer ! Follow these guys they're peak</3
